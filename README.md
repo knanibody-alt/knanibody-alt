@@ -3,7 +3,7 @@
 **Computer Engineering Student | IT & Technical Skills**
 
 📍 Baku, Azerbaijan  
-
+ knanibody31@gmail.com
 ---
 
 ## 👨‍💻 About Me
